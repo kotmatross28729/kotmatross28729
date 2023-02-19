@@ -1,4 +1,5 @@
-### Hi there 👋
+### it always has been
+![SHOCK](https://user-images.githubusercontent.com/110309314/219964572-a189aaa6-0c4f-4225-86ab-3845679f2074.png)
 
 <!--
 **kotmatross28729/kotmatross28729** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
